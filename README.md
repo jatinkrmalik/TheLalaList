@@ -57,4 +57,5 @@ Unapologetic about exploiting their employees. Convince employees it's okay beca
 https://inc42.com/resources/socialcops-culture/
 
 https://www.slideshare.net/socialcops/socialcops-culture-and-values/27?src=clipshare
-![](https://i.imgur.com/xEYC8Eb.png =250x250)
+
+<img src="https://i.imgur.com/xEYC8Eb.png" alt="Socialcops Image" width="250" height="250">
