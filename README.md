@@ -59,3 +59,9 @@ https://inc42.com/resources/socialcops-culture/
 https://www.slideshare.net/socialcops/socialcops-culture-and-values/27?src=clipshare
 
 <img src="https://i.imgur.com/xEYC8Eb.png" alt="Socialcops Image" width="250" height="250">
+
+## [NowFloats](https://www.nowfloats.com/) 
+
+(The Mumbai Floods are but a minor inconvenience, it seems. Thanks to <a href="https://twitter.com/harshalbot">@harshalbot</a>)
+<blockquote class="twitter-tweet" data-lang="en-gb"><p lang="en" dir="ltr">We have such people in our <a href="https://twitter.com/NowFloats?ref_src=twsrc%5Etfw">@nowfloats</a> family who challenge the challenges. <a href="https://twitter.com/GulatiSinghJ?ref_src=twsrc%5Etfw">@GulatiSinghJ</a> <a href="https://twitter.com/Rebel_Nitin?ref_src=twsrc%5Etfw">@Rebel_Nitin</a> <a href="https://twitter.com/rokrsa?ref_src=twsrc%5Etfw">@rokrsa</a> <a href="https://twitter.com/satishkohli13?ref_src=twsrc%5Etfw">@satishkohli13</a> <a href="https://twitter.com/hashtag/lakshyakoharhaalmeipaanahai?src=hash&amp;ref_src=twsrc%5Etfw">#lakshyakoharhaalmeipaanahai</a> <a href="https://t.co/tqc1xCtJPb">pic.twitter.com/tqc1xCtJPb</a></p>&mdash; Satyarth Shukla (@imsatyarth) <a href="https://twitter.com/imsatyarth/status/1016172434779590657?ref_src=twsrc%5Etfw">9 July 2018</a></blockquote>
+
