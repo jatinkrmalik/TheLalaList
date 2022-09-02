@@ -70,3 +70,24 @@ https://www.slideshare.net/socialcops/socialcops-culture-and-values/27?src=clips
 Apparently wants to create a cartel to vilify and blacklist candidates who dare to join another company instead of theirs.
 
 > There is a need of universal database of those candidates who take an offer letter from a company to go shopping around. I am pretty sure all the companies would feed information of such candidates to this database which would help just filter out any one part of this list - https://twitter.com/abhishek_tri/status/1293881125350313986
+
+## [Pristyn Care](https://www.pristyncare.com/)
+
+Makes interviewee go through unnecessary hoops just to see if they're "Special Driven".
+>
+> 1. Rang the candidate at 8:00am - to request for Interview - Early risers
+>
+> 2. Schedule telephonic interviews (first round) at 11.00pm - Late workers
+>
+> 3. Got the candidate to do detailed business case - Real world thinking
+>
+> 4. Got the candidate to spend 6-8 hours in the office - Culture and patience
+>
+> 5. Did in person interviews at 9.00 pm - Long working hours
+>
+> 6. Regularly did Sunday interviews - Extraordinary commitment
+>
+> 7. For outstation candidates, asked them to show up the next day - Hustle
+>
+> https://twitter.com/EducatedMoron/status/1565290629176758272/photo/1
+
