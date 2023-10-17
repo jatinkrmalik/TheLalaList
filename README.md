@@ -91,3 +91,26 @@ Makes interviewee go through unnecessary hoops just to see if they're "Special D
 >
 > https://twitter.com/EducatedMoron/status/1565290629176758272/photo/1
 
+## [Navi](https://navi.com/)
+
+Asks their customers to share their perosnal data if they want to see their investments, If you mistakenly share your data, you will regret for your life. Spam calls won't stop ever
+
+> https://twitter.com/sashindnj/status/1713771413880881289
+> 
+
+
+## [Dukaan](https://mydukaan.io/)
+
+> 1. Fired 90% of their support staf
+>
+> 2. Customer are not getting supprt from their team, resorting to booking call with CTO on topmate
+> 
+> 3. CEO deletes customer store in revenge, blocks customer on twitter for raising issues.
+> 
+> 4. Drives customers to sucidal thoughts and posts their private messages on twitter jokingly
+> 
+> 5. Spends their time building memes and cheap shots for as simple a thing as someone saying the pricing is higher than what someone can afford (This is despite their existing customers saying the pricing update happened without notice, and they also reneged on previous contracts of lifetime accounts)
+> 
+> https://twitter.com/kingslyj/status/1713855247569780893?s=20 
+> https://twitter.com/shantanugoel/status/1714171171657404706?s=20
+> https://twitter.com/kingslyj/status/1714155538265591979?s=20
